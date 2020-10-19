@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: As much as I wanna be the IT guy, I'm not the type of person who always leaves my cell phone in plain view. I am one of those who turns off 4G and wi-fi at all times at home because  I had stopped concentrating on the things I liked
 -->
+- :soccer: Hobbies: playing PokerStars, reading, catching PokemonGo, coding and taking photos.
 - ⚡ Fun fact: As much as I wanna be the IT guy, I'm not the type of person who always leaves my cell phone in plain view. I am one of those who turns off 4G and wi-fi at all times at home because  I had stopped concentrating on the things I liked
